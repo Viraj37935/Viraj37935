@@ -2,7 +2,7 @@
 
 . 👀 I’m a college student
 
-. 🌱 I’m currently doing TYbca
+. 🌱 I’m  recently completed my graduation
 
 . 📫 Reach me @ virajdimble6@gmail.com
 
